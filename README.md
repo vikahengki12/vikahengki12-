@@ -1,1 +1,1 @@
-# vikahengki12-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=00F726&width=435&lines=Hey!!+;My+name+is+Vika+Hengki+;I+am+a+student+in+SMK+N+1+KJB!" alt="Typing SVG" /></a>
